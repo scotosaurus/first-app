@@ -1,3 +1,3 @@
 # Frist App
 
-Figureing stuff out to create a node app
+Working it out to create a node app
