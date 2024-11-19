@@ -1,8 +1,1 @@
-# Frist App
-
-Working it out to create a node app
-
-
-## Subheader
-
-Testing things as we go ^src^
+## Understanding the Connection Between Pornography and Trafficking It is important to clarify that not all pornography is made from sex trafficking. However, there are significant concerns regarding the presence of non-consensual content within the mainstream porn industry. Here are some key points to consider: - **Non-Consensual Content:** Many stories and reports highlight that a substantial amount of content on mainstream porn sites features non-consensual videos created under circumstances of coercion or exploitation. For example, you can read about this in the [New York Times](https://www.nytimes.com/2020/12/04/opinion/sunday/pornhub-rape-trafficking.html) and other reputable sources. - **Grooming and Exploitation:** Traffickers and abusers often use pornography to groom victims and "train" them on expectations. Reports indicate that sexual predators frequently show their victims pornography during the grooming process to manipulate them. - **Lack of Transparency:** There is often no way for consumers to determine whether the porn they view is completely consensual or produced with coercion, which raises ethical concerns. - **Links to Trafficking:** Pornography and sex trafficking are intertwined in various ways. They can be considered one and the same; often, individuals involved in trafficking may also produce pornography. While the industry includes many performers who engage voluntarily, the presence of non-consensual material and the connections to trafficking cannot be overlooked. It's critical for consumers to be aware of these issues and make informed choices. If you have any other questions or need further information, feel free to ask!
